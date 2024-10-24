@@ -1,2 +1,3 @@
 ## Sigma Suace
-![bcd37c233ff831e7bc4d72ff05395776](https://github.com/user-attachments/assets/c2e28dae-1522-43fa-b55e-91d209f140fc)
+![2023-05-25](https://github.com/user-attachments/assets/6eb81565-9df3-4968-a83c-d52171a0f8be)
+# Tobis booty stinks
