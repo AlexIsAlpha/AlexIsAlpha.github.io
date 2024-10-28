@@ -23,5 +23,3 @@
 
 ## I love fem boys without the fem
 > sigma
-
-# https://www.google.com/imgres?q=big%20toes&imgurl=https%3A%2F%2Fimages.squarespace-cdn.com%2Fcontent%2Fv1%2F5f29d4cc762b8a4ff177a965%2F1620525472833-DIL56PGL8MKROW5LY2YM%2FHallux%2Brigidus&imgrefurl=https%3A%2F%2Fwww.danielbohl.com%2Fconditions%2Fbig-toe-arthritis&docid=wSxk_sJxU9Y1dM&tbnid=VJPd__0ZX-8qmM&vet=12ahUKEwi2lsO0mLGJAxWYGDQIHUEQCUYQM3oECG4QAA..i&w=2119&h=1414&hcb=2&ved=2ahUKEwi2lsO0mLGJAxWYGDQIHUEQCUYQM3oECG4QAA copy this link or ur gay
